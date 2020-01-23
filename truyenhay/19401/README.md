@@ -1,0 +1,6 @@
+<a href="https://utruyen.com/xin-chao-ac-quy/19401/" title="Xin Chào Ác Quỷ"><h1>Xin Chào Ác Quỷ</h1></a><div style="display:table"><img align="right" style="float: left; padding: 10px;" src="https://utruyen.com/images/story/200x260/xin-chao-ac-quy.jpg" alt="Xin Chào Ác Quỷ">truyện đam mỹ: Lạnh lùng công, dụ thụ, ngọt ngào
+  Văn Án:
+ Một Vampire sống ngàn năm, lạnh lùng, lãnh đạm. Mọi thứ xung quanh như  không còn gì có thể khiến anh chú ý. 
+Một cậu chủ Ân gia, ngậm thìa vàng lớn lên, định sẵn là người thừa kế... Không ai dám làm phận ý cậu. 
+Hai người hai thế giới...
+đến khi bọn họ gặp được nhau...</div><p><br><b>Truyện Hay Khác :</b></p><a href="https://utruyen.com/tinh-yeu-doc-chiem-cua-ac-ma/19402/" alt="Tình Yêu Độc Chiếm Của Ác Ma">Tình Yêu Độc Chiếm Của Ác Ma</a><br/><a href="https://www.flickr.com/photos/183745219@N08/48682590782/" alt="Thay Chị Lấy Chồng">Thay Chị Lấy Chồng</a><br/><a href="https://github.com/quanluxury/ngontinhhot/tree/master/truyenhay/19238/" alt="Tenseigan Trong Thế Giới Naruto">Tenseigan Trong Thế Giới Naruto</a><br/><a href="https://github.com/quanluxury/ngontinh_sac/tree/master/truyenhay/21404/" alt="Sở Vị Ái Tình">Sở Vị Ái Tình</a><br/>
